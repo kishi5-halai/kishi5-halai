@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Krishna Halai
+- 👀 I’m interested in php
+- 🌱 I’m currently working on Aeonx Digital 
