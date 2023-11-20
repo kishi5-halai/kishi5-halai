@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **kishihalai@gmail.com**
 
-- 📄 Know about my experiences [i have 3 years of experience.](i have 3 years of experience.)
+- 📄 Know about my experiences [i have 3 years of experience.]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
